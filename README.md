@@ -1,4 +1,3 @@
-Only built 4 cuban Linx...
 Only Built 4 Cuban Linx... (commonly referred to as The Purple Tape) is the debut studio album by American rapper
 and Wu-Tang Clan member Raekwon, released on August 1, 1995, by Loud Records and RCA Records.[1]
 The album was loosely composed to play like a film with Raekwon as the "star", fellow Wu-Tang member Ghostface Killah as the "guest-star", and producer RZA as the "director",[2]
